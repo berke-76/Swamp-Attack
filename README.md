@@ -225,4 +225,4 @@ Swamp Attack is offered as a full free version, allowing players to enjoy all fe
 Get ready to defend your home in Swamp Attack! Download now and start your adventure!
 
 ---
-**Last updated:** 2026-10-19 11:45:40 UTC
+**Last updated:** 2026-10-19 18:06:11 UTC
